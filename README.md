@@ -1,4 +1,4 @@
-- **Atualmente estou cursando Tecnologia da Informação na Faculdade Univesp,FrontEnd no Senai/Ford e BackEnd na Alura/Oracle para seguir uma nova carreira profissional.** </br>
+- **Universitária de Tecnologia da Informação na Faculdade Univesp, cursista  de Front-End no Senai parceria com a Ford e  Back-End na Alura/Oracle .** </br>
 - Procuro estágio na área de desenvolvimento para colocar em prática o que estou aprendendo. 
 - 💬 Me pergunte sobre meus  desafios e terei muito prazer em compartilhar.
 - 📫 Como chegar até mim? A maneira mais segura de se conectar comigo é através do meu perfil no LinkedIn https://www.linkedin.com/in/gisleneperuzzo.
