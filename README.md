@@ -5,4 +5,4 @@
 - ⚡**Minha principal expectativa com cursos na área de Tecnologia é ingressar em um mercado tão promissor que, segundo pesquisas, há déficit de profissionais e remuneração bastante atrativa, podendo assim conciliar pessoal e profissional vida.**
 - Apaixonada por música  🎶🎵🎼 
 - Redescobrindo a vida através dos estudos.
-https://gifs.eco.br/wp-content/uploads/2022/09/gifs-de-tecnologia-41.gif
+![200w](https://gifs.eco.br/wp-content/uploads/2022/09/gifs-de-tecnologia-41.gif)
