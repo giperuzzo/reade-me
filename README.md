@@ -1,5 +1,3 @@
-
-- 🔭 Não estou trabalhando no momento.
 - 🌱 Atualmente estou cursando Tecnologia da Informação na Faculdade Univesp, também curso de FrontEnd no Senai/Ford e BackEnd na Alura/Oracle para seguir uma nova carreira profissional.
 - 👯 O aprendizado na área de tecnologia muda diariamente.
 - 🤔 Procuro estágio na área de desenvolvimento para colocar em prática o que estou aprendendo.
