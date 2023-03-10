@@ -9,5 +9,5 @@
 - 💬 Ask me about my goals and challenges and I'll be happy to share this new trajectory of mine.
 - 📫 How to reach me? The surest way to connect with me is through my linkedin profile https://www.linkedin.com/in/gisleneperuzzo or WhatsApp 55 11 992638856.
 - 😄 Pronouns: She.
-- ⚡++ My main expectation with courses in the area of ​​Technology is to enter a market that is so promising that, according to research, there is a deficit of professionals and very attractive remuneration, thus being able to reconcile personal and professional life.**
+- ⚡** My main expectation with courses in the area of ​​Technology is to enter a market that is so promising that, according to research, there is a deficit of professionals and very attractive remuneration, thus being able to reconcile personal and professional life.**
 
