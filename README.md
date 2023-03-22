@@ -9,5 +9,3 @@
 
 
 
-![200w](https://semver.org/lang/pt-BR/)
-
