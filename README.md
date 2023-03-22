@@ -6,4 +6,5 @@
 - Apaixonada por música  🎶🎵🎼 
 - Redescobrindo a vida através dos estudos.
 ![200w](https://gifs.eco.br/wp-content/uploads/2022/09/gifs-de-tecnologia-41.gif)
-https://semver.org/lang/pt-BR/
+-Links para orientação sobre versionamento semântico: ![200w](https://semver.org/lang/pt-BR/)
+
